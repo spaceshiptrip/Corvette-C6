@@ -15,3 +15,4 @@ Check torque tube knocking: https://www.youtube.com/watch?v=_BAEHpmMcys
 
 Corvette not stating threads:
 https://www.corvetteforum.com/how-tos/a/corvette-why-wont-my-vette-start-368434
+https://youtu.be/SMKF4hNIhhA
